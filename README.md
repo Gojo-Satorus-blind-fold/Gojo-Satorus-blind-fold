@@ -1,4 +1,6 @@
-## Hi there 👋
+<img width="498" height="281" alt="tenor (3)" src="https://github.com/user-attachments/assets/69930bfe-cab7-49c4-bdfb-1db15b6bca63" />
+
+
 
 <!--
 **Gojo-Satorus-blind-fold/Gojo-Satorus-blind-fold** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
