@@ -1,6 +1,5 @@
-<img width="800" height="411" alt="1911bd3bf0ceda96143b50683afb39d5" src="https://github.com/user-attachments/assets/48674fd0-68af-4057-bd82-7b7c3a7e56db" />
-
-
+<img width="500" height="400" alt="8663461496fe402a067383ccbbf1893c" src="https://github.com/user-attachments/assets/4b267b3d-41c5-412a-bb8b-d72a077eb1ff" />
+<p>Hi hi hi welcome to my strawpage!!!</p>
 
 
 
