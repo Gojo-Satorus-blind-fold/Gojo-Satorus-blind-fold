@@ -1,5 +1,5 @@
 <img width="500" height="400" alt="8663461496fe402a067383ccbbf1893c" src="https://github.com/user-attachments/assets/4b267b3d-41c5-412a-bb8b-d72a077eb1ff" />
-<p>Hi hi hi welcome to my strawpage!!!</p>
+<p>Hi hi hi welcome to my github!!</p>
 
 
 
