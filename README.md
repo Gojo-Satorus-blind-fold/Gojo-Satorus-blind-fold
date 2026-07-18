@@ -4,6 +4,7 @@
 
 <p>Hi hi hi welcome to my github!!</p>
 
+<img width="581" height="581" alt="467cef1ad7127d935c484ca4d8a6922a" src="https://github.com/user-attachments/assets/46077fa8-f676-4c7d-817d-3f51956a7ae9" />
 
 
 
