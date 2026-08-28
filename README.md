@@ -4,7 +4,7 @@
 
 <p>Hi hi hi welcome to my github!!</p>
 
-<img width="581" height="581" alt="467cef1ad7127d935c484ca4d8a6922a" src="https://github.com/user-attachments/assets/46077fa8-f676-4c7d-817d-3f51956a7ae9" />
+<img width="581" height="581" alt="467cef1ad7127d935c484ca4d8a6922a" src="https://i.pinimg.com/736x/16/03/02/1603028fc0e55b3acbd3a0c29a72970a.jpg" />
 
 
 
