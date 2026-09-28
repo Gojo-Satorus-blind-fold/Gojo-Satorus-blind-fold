@@ -1,7 +1,10 @@
 the real gojo catboy
 
+<img width="700" height="700" alt="1017" src="https://github.com/user-attachments/assets/73235b70-19a9-420e-aefb-12e9ffeeffbd" />
 
-<img width="735" height="994" alt="1017" src="https://github.com/user-attachments/assets/241b9655-7d1c-4821-9ac9-731fa7a6cbe4" />
+
+<img width="400" height="300" alt="1014" src="https://github.com/user-attachments/assets/bc11d6e7-1e4d-4ea6-bd85-8aab26abf132" />
+
 
 
 
