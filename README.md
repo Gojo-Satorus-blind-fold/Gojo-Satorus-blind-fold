@@ -1,18 +1,4 @@
-the real gojo 
-
-
-https://github.com/user-attachments/assets/b9fc7ae4-dd15-4090-8c9f-2c3f260e2a78
-
-
-
-
-<p>Hi hi hi welcome to my github!!</p>
-
-<img width="581" height="581" alt="467cef1ad7127d935c484ca4d8a6922a" src="https://i.pinimg.com/736x/16/03/02/1603028fc0e55b3acbd3a0c29a72970a.jpg" />
-
-
-
-**Please only sign my 123yaoi atabook instead!**
+the real gojo catboy
 
 
 
